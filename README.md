@@ -18,3 +18,6 @@ Les organizará el viaje para el día jueves 23 de Marzo.
 
 Pero resulta que sólo quedaban viajes a Murcia... 
 
+## Autor: Jose Luis Pino
+
+Llegó el día del vuelo, y cuando estaban en la puerta de embarque...
