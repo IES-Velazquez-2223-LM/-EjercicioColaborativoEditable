@@ -13,3 +13,8 @@ Por eso, dedicieron aceptar un destino sorpresa propuesto por la recientemente f
 ### Autor: Guadalupe Villegas Flores
 
 Les organizará el viaje para el día jueves 23 de Marzo.
+
+## Autor: Marco Blanco Lebrón
+
+Pero resulta que sólo quedaban viajes a Murcia... 
+
