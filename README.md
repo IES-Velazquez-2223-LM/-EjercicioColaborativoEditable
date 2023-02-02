@@ -9,3 +9,7 @@ Una vez que terminaron sus estudios, los alumnos de 1º DAM del IES Velázquez d
 ### Autora: Paloma Ferrández Fernández
 
 Por eso, dedicieron aceptar un destino sorpresa propuesto por la recientemente fundada aerolínea "Airatorio". 
+
+### Autor: Guadalupe Villegas Flores
+
+Les organizará el viaje para el día jueves 23 de Marzo.
