@@ -33,3 +33,6 @@ E intentando sacar un pez Dani cayo al agua.
 
 ## Autor: clara tabales
 Y en las profundidades vio un pez de color dorado. Parecía querer mostrarle algo. Dani le siguió...
+
+## Autor: Daniel Mamani Torres
+El pez se llamaba Davo, un pez de Buenos Aires, Argentina que era hincha de Boca Juniors, lo estaba llevando a un stream de Twitch junto con la Cobra.
