@@ -30,3 +30,6 @@ En fin, llegaron a murcia, donde despues de soñar con una portugesa, pararon en
 
 ## Autor: Abdelmalek Saim
 E intentando sacar un pez Dani cayo al agua.
+
+## Autor: clara tabales
+Y en las profundidades vio un pez de color dorado. Parecía querer mostrarle algo. Dani le siguió...
