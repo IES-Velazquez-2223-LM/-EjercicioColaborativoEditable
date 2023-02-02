@@ -21,3 +21,6 @@ Pero resulta que sólo quedaban viajes a Murcia...
 ## Autor: Jose Luis Pino
 
 Llegó el día del vuelo, y cuando estaban en la puerta de embarque...
+
+## Autor: Daniel Mamani Torres
+Cierto miembro de la clase se pregunto como había sido posible que de todas las aerolineas, la clase había elegido una 'nueva' y con 0 referencias. ¿Se habían vuelto locos? ¿Acaso apreciaban muy poco sus vidas como para depositar todas sus esperanzas en tan nueva aerolinea? La cosa no pintaba demasiado bien, menos el destino de aquel viaje. Francia. Peor habria sido aquella esteril tierra conocida como Inglaterra.
